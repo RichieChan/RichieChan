@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RichieChan
+- 📫  My email address is ischenxincc@gmail.com.
